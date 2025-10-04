@@ -60,3 +60,5 @@ Share it with the world: Maybe a blog post like this, or a science competition.
 
 
 Even if I can’t patent it right now, this idea proves you don’t need to be an adult or have millions to invent something cool. You just need curiosity, some math, and a bathroom 🚽💡.
+
+Concept by MD Akein Lithmal Wijesinghe , originally published on 04/10/2025. All rights reserved
